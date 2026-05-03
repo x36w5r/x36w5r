@@ -25,7 +25,14 @@
    <br>
     <br>
     <br>  
-
+ <br>
+   <br>
+    <br>
+    <br>
+    <br>
+    <br>
+   <br>
+    <br>  
 <img align="right" src=https://github.com/x36w5r/x36w5r/blob/1029f2eafa04b086199765786493dd99cd6e0b8f/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20(14).jpg />
     <div align="center">  chi] вопи мне в пах еще минут 10, заработаешь хотя бы свои нищие 0.5 кирьгизьскай волюты   <br>   <br>   <br>   <br> z b vjb lhepmz --->
 <img align="left" src=https://github.com/x36w5r/x36w5r/blob/4b4e6293e831178247a9c7abd7be37be88dbe726/%D0%91%D0%B5%D0%B7%20%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20(16).jpg />
