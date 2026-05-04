@@ -54,3 +54,19 @@
 <div align="left">  
    <br>
     <br>
+ <br>
+   <br>
+    <br>
+    <br>
+    <br>
+    <br>
+   <br>
+    <br>   <br>
+   <br>
+    <br>
+    <br>
+    <br>
+    <br>
+   <br>
+    <br>  
+   <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">  <div align="center">   99% кодов спиздила у друзей :3  у @CASSIOquo и @b3drosk1
